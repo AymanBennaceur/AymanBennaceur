@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Ayman Ben-naceur
+# 👋 Hi, I'm Ayman
 
 🎓 **Software Engineer | Cybersecurity Enthusiast | AI Explorer**
 
